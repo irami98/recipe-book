@@ -3,7 +3,7 @@
 ## Ingredients
 
 - Your favourite pasta shape
-- Tomato
+- Tomato (fresh)
 - Garlic
 - Salt
 - Pepper
